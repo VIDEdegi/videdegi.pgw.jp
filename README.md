@@ -1,0 +1,1 @@
+# videdegi.pgw.jp
